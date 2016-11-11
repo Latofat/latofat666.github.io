@@ -1,0 +1,1 @@
+# latofat666.github.io
